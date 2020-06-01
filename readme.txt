@@ -1,2 +1,2 @@
-we don't talk antmore
-Like we used to do
+we don't talk antmore. Yes.
+Like we used to do.
